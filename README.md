@@ -1,2 +1,2 @@
 # Newsletter
-https://super-bull-trunks.cyclic.app
+Link to App------>>>>>https://super-bull-trunks.cyclic.app
